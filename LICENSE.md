@@ -1,4 +1,4 @@
-
+advanced easter tap simulator Script offers the most advanced easter tap simulator Script, with auto-sell and god mode. Perfect for dominating any
 
 
 
